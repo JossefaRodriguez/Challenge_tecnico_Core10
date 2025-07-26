@@ -1,0 +1,1 @@
+# Challenge_tecnico_Core10
